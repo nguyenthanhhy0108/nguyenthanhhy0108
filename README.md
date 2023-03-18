@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **job.bkth@gmail.com**
 
-- ⚡ Fun fact **I think I really handsome :D**
+- ⚡ Fun fact **I’m a bit quiet. But it doesn’t mean I never talk, I just tend to listen more. :D**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
